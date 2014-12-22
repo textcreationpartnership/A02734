@@ -35,9 +35,13 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The christian life and death, of Mistris Katherin Brettergh late wife of Master William Brettergh, o
+
+1. TO THE CHRISTIAN READER, grace and peace in IESVS CHRIST.
+
 #####Body#####
-The christian life and death, of Mistris Katherin Brettergh late wife of Master William Brettergh, o
+
+1. The holie Life and Christian Death, of Mistris KATHERIN BRETTERGH.
+
 **Types of content**
 
   * There are 4 **verse** lines!
